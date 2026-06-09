@@ -1,5 +1,5 @@
 # 💫 About Me:
-Currently working on Torrent client (osTorrent)<br>love to Travel, learn, and calisthenics<br>Grinding school 
+<br>love to Travel, learn, and calisthenics<br>Grinding school 
 
 
 ## 🌐 Socials:
